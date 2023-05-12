@@ -1,5 +1,7 @@
 ### Olá, seja bem vindo! 🤓
+![image](https://github.com/borgesamanda/borgesamanda/assets/132674181/7255b8a6-aaa6-4e6d-978c-85af8335c50f)
 
-![image](https://user-images.githubusercontent.com/132674181/236488671-c4244f07-ce3d-4ddd-9b4c-a737ed5b3134.png)
+
+
 
 
